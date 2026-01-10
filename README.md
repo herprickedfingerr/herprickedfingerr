@@ -3,7 +3,7 @@
 
 ㅤㅤㅤㅤMy preferred names are Wens, Frankie, Sam, and El. Though, any of my names found on my pronouns.cc page is fine as well.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFeel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤFeel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤSome interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
 
