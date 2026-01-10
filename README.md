@@ -9,7 +9,7 @@
 
 ㅤㅤㅤㅤㅤㅤI mostly like 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI also love any things disney and lion, that is including fanmade lion shows like my pride.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI also love any things disney and lion, that is including fanmade lion shows like my pride.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm mostly with Hefty, Alice, Pawsie, Ann, Arrow, or King Evaen!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm mostly with Hefty, Alice, Pawsie, Ann, Arrow, or King Evaen!
 ㅤ
