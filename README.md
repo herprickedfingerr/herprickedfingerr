@@ -11,5 +11,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI also love any things disney and lion, that is including fanmade lion shows like my pride.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm mostly with Hefty, Alice, Pawsie, Ann, Arrow, or King Evaen!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm mostly with Hefty, Alice, Pawsie, Ann, Arrow, or King Evaen!
 ㅤ
