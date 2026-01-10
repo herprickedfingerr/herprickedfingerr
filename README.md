@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤFeel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤSome interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
+ㅤㅤㅤㅤㅤㅤㅤSome interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤI mostly like 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
 
