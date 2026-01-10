@@ -1,4 +1,9 @@
 "ㅤClose ㅤyour ㅤeyes,ㅤ Have ㅤno ㅤfear..ㅤ Theㅤ monster'sㅤ gone, ㅤhe'sㅤonㅤ theㅤ runㅤ -ㅤ And ㅤyourㅤ daddy'sㅤ here.ㅤ "
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![e5574783b0b84f2da2dd6b424ce296d9](https://github.com/user-attachments/assets/fe9edbaf-d491-485a-b093-1f3101919d0a)
 
-<img width="540" height="380" alt="image" src="https://github.com/user-attachments/assets/66c94e42-c556-4b06-856b-65693dc39717" />
+My preferred names are Wens, Frankie, Sam, and El. Though, any of my names found on my pronouns.cc page is fine as well.
+Feel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too.
+Some interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
+I mostly like 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
+I also love any things disney and lion, that is including fanmade lion shows like my pride.
+Im mostly with Hefty, Alice, Pawsie, Ann, Arrow, or King Evaen!
