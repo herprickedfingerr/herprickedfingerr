@@ -5,11 +5,11 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFeel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSome interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSome interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI mostly like 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤI mostly like 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI also love any things disney and lion, that is including fanmade lion shows like my pride.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI also love any things disney and lion, that is including fanmade lion shows like my pride.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm mostly with Hefty, Alice, Pawsie, Ann, Arrow, or King Evaen!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm mostly with Hefty, Alice, Pawsie, Ann, Arrow, or King Evaen!
 ㅤ
