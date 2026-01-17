@@ -1,5 +1,6 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![e5574783b0b84f2da2dd6b424ce296d9](https://github.com/user-attachments/assets/fe9edbaf-d491-485a-b093-1f3101919d0a)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1200" height="599" alt="image" src="https://github.com/user-attachments/assets/d1ff443e-cd4c-4e75-90d3-08ee46fd791f" />
+
 
 ㅤㅤㅤMy preferred names are Wens, Frankie, Sam, and El. Though, any of my names found on my pronouns.cc page is fine as well.
 
