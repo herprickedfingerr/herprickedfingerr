@@ -8,6 +8,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤSome interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm more of a traditional artist than digital, but I do digital sometimes.
+
 ㅤㅤㅤㅤㅤI mostly like 2013 - 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI also love any thing disney and lion, that is including fanmade lion shows like my pride.
