@@ -14,7 +14,7 @@ Two interesting things about me is that I have naturally color changing eyes, an
 
 Im more of a traditional artist than digital, but I do digital sometimes. (most art I have for PFP's is not mine, but some might be.)
 
-<img width="550" height="44" alt="image" src="https://github.com/user-attachments/assets/40c3f86f-97a3-4b82-a911-fe75385c076f" />
+<img width="800" height="44" alt="image" src="https://github.com/user-attachments/assets/40c3f86f-97a3-4b82-a911-fe75385c076f" />
 
 I mostly like 2013 - 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
 
