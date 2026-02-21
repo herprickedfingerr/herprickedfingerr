@@ -5,6 +5,8 @@
 
 BYI: I am an ISFJ / INFP!!
 
+@wednesdayaddamsss = main
+
 My preferred names are Wens, Frankie, Sam, and El. Though, any of my names found on my pronouns.cc page is fine as well.
 
 Feel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too. (if my name says dni, please do not interact!!)
