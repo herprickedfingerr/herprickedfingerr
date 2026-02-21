@@ -8,7 +8,7 @@ My preferred names are Wens, Frankie, Sam, and El. Though, any of my names found
 
 Feel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too. (if my name says dni, please do not interact!!)
 
-<img width="657" height="44" alt="image" src="https://github.com/user-attachments/assets/3f26aae3-e290-4bee-b063-4e4b38780cc3" />
+<img width="800" height="44" alt="image" src="https://github.com/user-attachments/assets/3f26aae3-e290-4bee-b063-4e4b38780cc3" />
 
 Two interesting things about me is that I have naturally color changing eyes, and I can shake my pupils, check straw + prns.cc for more.
 
