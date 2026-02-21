@@ -6,15 +6,19 @@
 
 My preferred names are Wens, Frankie, Sam, and El. Though, any of my names found on my pronouns.cc page is fine as well.
 
-Feel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too.
+Feel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too. (if my name says dni, please do not interact!!)
 
-Some interesting things about me is that I have naturally color changing eyes, and I can shake my pupils.
+<img width="657" height="44" alt="image" src="https://github.com/user-attachments/assets/3f26aae3-e290-4bee-b063-4e4b38780cc3" />
 
-Im more of a traditional artist than digital, but I do digital sometimes.
+Two interesting things about me is that I have naturally color changing eyes, and I can shake my pupils, check straw + prns.cc for more.
+
+Im more of a traditional artist than digital, but I do digital sometimes. (most art I have for PFP's is not mine, but some might be.)
+
+<img width="550" height="44" alt="image" src="https://github.com/user-attachments/assets/40c3f86f-97a3-4b82-a911-fe75385c076f" />
 
 I mostly like 2013 - 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
 
 I also love any thing disney and lion, that is including fanmade lion shows like my pride.
 
-Mostly with friends or by myself somewhere, if my name says dni, please do not interact.. :>
+Mostly with friends or by myself somewhere.
 ㅤ
