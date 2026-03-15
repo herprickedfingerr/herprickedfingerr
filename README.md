@@ -22,7 +22,7 @@ ISFJ / INFP 𝜗𝜚 fictkin & therian
 
 To the lazy people, I will just list everything you need to know about me here so you don't have to go to my other githubs or links. (if you would LIKE to, please follow my other githubs + aomfs, and draw me something pretty / ask me something on my straw! :>)
 
-image
+
 BYI(?) / about me ::
 
 I want to become an actor when I grow up!
