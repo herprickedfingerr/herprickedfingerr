@@ -2,26 +2,43 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![⋆˙☽༺♡༻☾⋆˙](https://github.com/user-attachments/assets/f67863b3-a321-44f9-a6f2-21303fddb715)
 
 
-
-BYI: I am an ISFJ / INFP!!
-
 _**[ @wednedayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
-My preferred names are Wens, Frankie, Sam, and El. Though, any of my names found on my pronouns.cc page is fine as well.
+Hey chat.. Im wens or wtv you wanna call me..
 
-Feel free to c+h anytime, no matter what. That goes for when im chillin with my buddies, too. (if my name says dni, please do not interact!!)
+im young-ish. if you think thats weird or you don't like people under 16 dni (im over 11.), thanks!! Im not weird about my age, and no I don't edate or anything like that. I'm very mature for my age, atleast I think lol.
 
-<img width="800" height="44" alt="image" src="https://github.com/user-attachments/assets/3f26aae3-e290-4bee-b063-4e4b38780cc3" />
+NOTE: im always wednesday and el, sometimes I just change my pfp and things!!
 
-Two interesting things about me is that I have naturally color changing eyes, and I can shake my pupils, check straw + prns.cc for more.
+el is one of my BIGGEST and main kins
 
-Im more of a traditional artist than digital, but I do digital sometimes. (most art I have for PFP's is not mine, but some might be.)
+Im just adding onto this because I need to update this, also because this is my main and people probably do not go to my alts unless I have the githubs on my ponies.
 
-<img width="800" height="93" alt="image" src="https://github.com/user-attachments/assets/9b5b3c6d-f993-43e3-a6e2-fe542390aa29" />
+If you need to know absolutely anything about me, it would be on my strawpage, one of my other githubs, my pronouns.cc, or my patreon!
 
-I mostly like 2013 - 2016 shows, like stranger things, ever after high, jessie, icarly, liv & maddie, monster high, etc.
+Also if you haven't seen, my discord is princessg845, or beepbeepxoxo
 
-I also love any thing disney and lion, that is including fanmade lion shows like my pride.
+ISFJ / INFP 𝜗𝜚 fictkin & therian
 
-Mostly with friends or by myself somewhere.
-ㅤ
+To the lazy people, I will just list everything you need to know about me here so you don't have to go to my other githubs or links. (if you would LIKE to, please follow my other githubs + aomfs, and draw me something pretty / ask me something on my straw! :>)
+
+image
+BYI(?) / about me ::
+
+I want to become an actor when I grow up!
+
+I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely rad. I am an ISFJ / INFP!! ^_^
+
+Once I get to know you I will say hi whenever you're online, when I see you in general, and I will probably just come up to you to c+h, if that is okay.
+
+If you would ever like, I would love to gift you ponies. I enjoy making other people things, as I believe it is my job to give and care for others! (not religious, I'm justoverly caring lmao)
+
+I love having friends around, and cuddling other ponies brings me comfort! (Even if we don't talk while c+h-ing.)
+
+All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & They/Them), Though I love using she/they, as those are my actual pronouns!
+
+If you are oomfs I actually platonically love you so much (not trying to be weird ok..) gulps
+
+Disney's #1 traveler ok.. disney adult type of gal ok.. yes? ok..
+
+SNEAKERNIGHT BY VANESSA HUDGENS (We love you Layla for introducing this to me and Ann 🤍 LMAOOOOAO)
