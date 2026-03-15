@@ -8,8 +8,6 @@ Hey chat.. Im wens or wtv you wanna call me..
 
 im young-ish. if you think thats weird or you don't like people under 16 dni (im over 11.), thanks!! Im not weird about my age, and no I don't edate or anything like that. I'm very mature for my age, atleast I think lol.
 
-el is one of my BIGGEST and main kins
-
 Im just adding onto this because I need to update this, also because this is my main and people probably do not go to my alts unless I have the githubs on my ponies.
 
 If you need to know absolutely anything about me, it would be on my strawpage, one of my other githubs, my pronouns.cc, or my patreon!
