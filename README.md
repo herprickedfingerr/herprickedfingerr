@@ -4,4 +4,4 @@
 _**[ @wednedayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
 
-_[guns.lol](https://guns.lol/schnipperschnapp)_⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀
+[guns.lol](https://guns.lol/schnipperschnapp)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀
