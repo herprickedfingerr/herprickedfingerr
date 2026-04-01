@@ -4,4 +4,4 @@
 _**[ @wednedayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
 
-[guns.lol](https://guns.lol/schnipperschnapp)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀
+[guns.lol](https://guns.lol/schnipperschnapp)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[prns.](https://en.pronouns.page/@addamsz)
